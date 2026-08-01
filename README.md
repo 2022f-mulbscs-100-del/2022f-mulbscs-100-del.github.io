@@ -1,0 +1,1 @@
+# 2022f-mulbscs-100-del.github.io
